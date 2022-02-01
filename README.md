@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Lion-Rick
+- 👋 Hi, I’m @Lion-Rick(not my name)
 - 👀 I’m interested in ...AI,Program
 - 🌱 I’m currently learning ...IT 
 - 💞️ I’m looking to collaborate on ...
